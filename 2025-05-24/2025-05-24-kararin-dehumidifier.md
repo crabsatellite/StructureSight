@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/cecfd170-350e-4ea1-8452-067b4c4cf6e6)
+
 # Structure Sight #05｜Kararin除湿消臭片与日本生活治理微系统（2025-05-24）
 
 ---
