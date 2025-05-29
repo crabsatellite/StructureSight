@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/25faf599-fd7e-4724-bb6b-0e44ebf3b6f9)
+
 # 2025-05-29-structure-sight-36-natural-lawson-minato.md
 
 ## Structure Sight #36｜NATURAL LAWSON与“日式健康-享乐并存”的品牌错位
